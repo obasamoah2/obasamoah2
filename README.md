@@ -39,6 +39,9 @@ leadership abilities. Seeking to leverage these strengths to contribute to a dyn
 
 11. Brand Voice Specialist
 
+## carriculum Vitae
+[Obed Boakye Asamoah.cv].(https://github.com/obasamoah2/obasamoah2/blob/main/OBINCO%20CV.pdf)
+
 
 ## 🔗 Links
 [![portfolio](https://img.shields.io/badge/my_portfolio-000?style=for-the-badge&logo=ko-fi&logoColor=white)](https://ANIORJI-ESTHER.com/)
