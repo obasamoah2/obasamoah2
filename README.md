@@ -45,6 +45,33 @@ leadership abilities. Seeking to leverage these strengths to contribute to a dyn
 ## What am currently doing 
 I am currently an undergraduate student pursuing a B.A. in Economics, concurrently gaining real-world experience and actively applying my academic knowledge through an internship at GT Bank. I am dedicating my time to becoming proficient in Data Analysis and Financial Modeling to enhance my professional value and prepare for a career in finance.
 
+## Projects
+### 1. Microsoft Excel
+
+### 2. Data Analyses Skills 
+
+### 3. Financial Analyst
+
+### 4. Typist
+
+### 5. Graphic Designer
+
+### 6. Debater And a Public Speaker  
+
+
+### 7. Excel Microsoft Word
+
+
+### 8.   Excel, PowerPoint 
+
+
+### 9. Musician and Instrumentalist – Violinist, 
+
+
+### 10. Keyboardist Beginner 
+
+### 11. Brand Voice Specialist
+
 
 
 ## 🔗 Links
