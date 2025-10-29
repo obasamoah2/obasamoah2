@@ -42,6 +42,10 @@ leadership abilities. Seeking to leverage these strengths to contribute to a dyn
 ## carriculum Vitae
 [obasamoah2.cv](https://github.com/obasamoah2/obasamoah2/blob/main/OBINCO%20CV.pdf)
 
+## What am currently doing 
+I am currently an undergraduate student pursuing a B.A. in Economics, concurrently gaining real-world experience and actively applying my academic knowledge through an internship at GT Bank. I am dedicating my time to becoming proficient in Data Analysis and Financial Modeling to enhance my professional value and prepare for a career in finance.
+
+
 
 ## 🔗 Links
 [![portfolio](https://img.shields.io/badge/my_portfolio-000?style=for-the-badge&logo=ko-fi&logoColor=white)](https://ANIORJI-ESTHER.com/)
