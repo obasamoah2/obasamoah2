@@ -40,7 +40,7 @@ leadership abilities. Seeking to leverage these strengths to contribute to a dyn
 11. Brand Voice Specialist
 
 ## carriculum Vitae
-[obasamoah2.cv].(https://github.com/obasamoah2/obasamoah2/blob/main/OBINCO%20CV.pdf)
+[obasamoah2.cv](https://github.com/obasamoah2/obasamoah2/blob/main/OBINCO%20CV.pdf)
 
 
 ## 🔗 Links
