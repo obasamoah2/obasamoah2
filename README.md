@@ -7,7 +7,7 @@
 
 ## 🚀 About Me
 A highly motivated under graduate with a strong academic background in Economics and Accounting. Possesses 
-robust financial analysis and data interpretation skills, combined with exceptional public speaking, Graphic designer,  Proficient in Adobe Photoshop, Typist, Fluent in English, Beginner French,Violinist, Keyboardist Beginner 
+robust financial analysis and data interpretation skills, combined with exceptional public speaking, Graphic designer,  Proficient in Adobe Photoshop, Typist, Beginner French,Violinist, Keyboardist Beginner 
   and 
 leadership abilities. Seeking to leverage these strengths to contribute to a dynamic professional environment. 
 
