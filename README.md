@@ -26,10 +26,10 @@ leadership abilities. Seeking to leverage these strengths to contribute to a dyn
 6. Debater And a Public Speaker  
 
 
-7. Excel Microsoft Word
+7. Microsoft Word
 
 
-8.   Excel, PowerPoint 
+8. Microsoft PowerPoint 
 
 
 9. Musician and Instrumentalist – Violinist, 
