@@ -47,7 +47,8 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
 
 ## Projects
 ### 1. Microsoft Excel
-
+   ### 1.[Microsoft Excel Project]
+   
 ### 2. Data Analyses Skills 
 
 ### 3. Financial Analyst
