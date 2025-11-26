@@ -58,19 +58,13 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
 
 ### 6. Debater And a Public Speaker  
 
-
-### 7. Excel Microsoft Word
-
-
-### 8.   Excel, PowerPoint 
+### 7.  Musician and Instrumentalist – Violinist, 
 
 
-### 9. Musician and Instrumentalist – Violinist, 
+### 8. Keyboardist Beginner 
+   
 
-
-### 10. Keyboardist Beginner 
-
-### 11. Brand Voice Specialist
+### 9. Brand Voice Specialist
 
 
 
