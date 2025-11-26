@@ -47,7 +47,7 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
 
 ## Projects
 ### 1. Microsoft Excel
-   ### 1.[Microsoft Excel Project](https://github.com/obasamoah2/Microsoft-Excel-Projects/blob/main/sales%20analyses%20with%20pivot%20table%20png%202.jpg)
+      ### 1.[Microsoft Excel Project](https://github.com/obasamoah2/Microsoft-Excel-Projects/blob/main/sales%20analyses%20with%20pivot%20table%20png%202.jpg)
    
 ### 2. Data Analyses Skills 
 
