@@ -72,6 +72,8 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
   ### ii. [Passion driven speeches](https://github.com/obasamoah2/Debater-and-a-Public-Speaker-Projects-/blob/main/Passion%20Driven%20speeches.jpeg)
 
 ### 7.  Musician and Instrumentalist – Violinist, 
+  ### i. [ Violinist ](https://github.com/obasamoah2/Musician-and-an-Instrumentalist---Violinist-projects-/blob/main/together%20with%20the%20orchestra%20.jpg)
+  
 
 
 ### 8. Keyboardist Beginner 
