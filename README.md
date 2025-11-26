@@ -57,6 +57,8 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
    
 ### 3. Financial Analyst
    ### i. [Financial Campany Evaluation comparables](https://github.com/obasamoah2/Financial-Analyses-/blob/main/company%20comparables%20.jpg)
+   ### i. [Income Statement of Uniliver analyses](https://github.com/obasamoah2/Financial-Analyses-/blob/main/uniliver%20financial%20statement%20analyses%20.jpg)
+   
 
 ### 4. Typist
 
