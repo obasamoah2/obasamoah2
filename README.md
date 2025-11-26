@@ -74,6 +74,7 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
 ### 7.  Musician and Instrumentalist – Violinist, 
   ### i. [ Violinist ](https://github.com/obasamoah2/Musician-and-an-Instrumentalist---Violinist-projects-/blob/main/together%20with%20the%20orchestra%20.jpg)
   ### ii. [Together with the orchestra](https://github.com/obasamoah2/Musician-and-an-Instrumentalist---Violinist-projects-/blob/main/with%20the%20orchestra%20.jpeg)
+  ### iii. [ vedeo of faith of our fathers ( click view raw and download)](https://github.com/obasamoah2/Musician-and-an-Instrumentalist---Violinist-projects-/blob/main/faith%20of%20our%20fathers%20we%20believe.mp4)
   
 
 
