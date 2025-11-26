@@ -53,7 +53,8 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
    
 ### 2. Data Analyses Skills 
    ### i. [Global sales analyses Dashboard](https://github.com/obasamoah2/Data-analyses-Projects-/blob/main/Global%20sales%20analyses%20Dashboard%202.jpg)
-
+   ### ii.[Dashboard from the Global Sales](https://github.com/obasamoah2/Data-analyses-Projects-/blob/main/Global%20sales%20analyses%20Dashboard.jpg)
+   
 ### 3. Financial Analyst
 
 ### 4. Typist
