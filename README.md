@@ -84,6 +84,7 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
    
 
 ### 9. Brand Voice Specialist
+  ### [Advertising for an Enterprice ( click on view raw to download)](https://github.com/obasamoah2/Brand-voice-specialist-projects-2/blob/main/affordable%20rice%20.mp4)
 
 
 
