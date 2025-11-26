@@ -56,6 +56,7 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
    ### ii.[Dashboard from the Global Sales](https://github.com/obasamoah2/Data-analyses-Projects-/blob/main/Global%20sales%20analyses%20Dashboard.jpg)
    
 ### 3. Financial Analyst
+   ### i. [Financial Campany Evaluation comparables](https://github.com/obasamoah2/Financial-Analyses-/blob/main/company%20comparables%20.jpg)
 
 ### 4. Typist
 
