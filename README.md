@@ -67,6 +67,7 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
    ### ii.[ A collection of desings ](https://github.com/obasamoah2/Graphic-Designing-Projects/blob/main/graphic%20desinging%20.jpg)
 
 ### 6. Debater And a Public Speaker  
+  ### i.[ Speech Vedeo ( click on view raw to download)](https://github.com/obasamoah2/Debater-and-a-Public-Speaker-Projects-/blob/main/Its%20all%20about%20Praising%20God%20.mp4)
 
 ### 7.  Musician and Instrumentalist – Violinist, 
 
