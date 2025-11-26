@@ -64,6 +64,7 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
 
 ### 5. Graphic Designer
    ### i. [ Vedeo (click on view raw to download )](https://github.com/obasamoah2/Graphic-Designing-Projects/blob/main/Obinco%20Graphics%20Advertisement%20.mp4)
+   ### ii.[ A collection of desings ](https://github.com/obasamoah2/Graphic-Designing-Projects/blob/main/graphic%20desinging%20.jpg)
 
 ### 6. Debater And a Public Speaker  
 
