@@ -80,7 +80,7 @@ I am currently an undergraduate student pursuing a B.A. in Economics, concurrent
 
 ### 8. Keyboardist Beginner 
   ### i. [playing melodous tunes Download and view](https://github.com/obasamoah2/Keyboardist-Beginner-Projects-/blob/main/IMG_5629.HEIC)
-  ### i. [
+  ### i. [on the Keyboard](https://github.com/obasamoah2/Keyboardist-Beginner-Projects-/blob/main/Playing%20melodous%20tunes%20.HEIC)
    
 
 ### 9. Brand Voice Specialist
